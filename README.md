@@ -1,2 +1,0 @@
-# CP
-dikit yang AC
